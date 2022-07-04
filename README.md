@@ -1,5 +1,7 @@
 # MercadoTech
+
+
 Joel Acosta :wink:
-Paulina Luissi
-Rodrigo Ruiz
-Paulo Pintos
+Rodrigo Ruiz :smile: 
+Paulina Luissi :sunglasses:
+Paulo Pintos :space_invader:
