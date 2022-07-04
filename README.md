@@ -1,5 +1,5 @@
 # MercadoTech
-Joel Acosta
+Joel Acosta :wink:
 Paulina Luissi
 Rodrigo Ruiz
 Paulo Pintos
